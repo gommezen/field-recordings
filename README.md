@@ -1,3 +1,3 @@
 # field-recordings
-monday september 2018
+monday 24. september 2018
 recordings of natural soundscapes and city soundscapes
